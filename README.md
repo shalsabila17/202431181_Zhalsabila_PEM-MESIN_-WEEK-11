@@ -1,0 +1,9 @@
+**Praktikum **
+
+Nama: Zhalsabila Amalia Putri
+
+NIM: 202431181
+
+Mata Kuliah: Pembelajaran Mesin
+
+Tanggal : 25 November 2026
